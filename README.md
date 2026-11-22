@@ -1,2 +1,2 @@
 # contafacil-legal
-Política de Privacidad – ContaFácil Autónomos
+Política de Privacidad — Aplicaciones de Juan Modesto Vicente Silva
